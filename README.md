@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on Unreal Engine games.
 - 📫 How to reach me: [N/A]
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I haven't got a clue about what I'm doing.
+- ⚡ Fun fact: I am interested in getting a career in the Nuclear Industry.
